@@ -1,1 +1,1 @@
-# Online_Retail_Sale
+Provide the CEO and CMO of the business with a valuable perspective on the online retail store. The business has been operating efficiently, and the management is interested in identifying the primary factors that contribute to its revenue in order to develop a strategic plan for the upcoming year.
